@@ -2,7 +2,7 @@ NONCHALANT ADIYASUREN
 <!DOCTYPE html>
 <html>
 <head>
-	<title>I love femboys</title>
+	<title>Welcome to my Femboy World</title>
 </head>
 <body>
 	<h1>Welcome to Laboratory 1</h1>
